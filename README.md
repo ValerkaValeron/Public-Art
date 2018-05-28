@@ -1,2 +1,2 @@
 # Public-Art
-Some examples of successful public places
+Public art is art in any media that has been planned and executed with the intention of being staged in the physical public domain, usually outside and accessible to all. Public art is significant within the art world, amongst curators, commissioning bodies and practitioners of public art, to whom it signifies a working practice of site specificity, community involvement and collaboration. Public art may include any art which is exhibited in a public space including publicly accessible buildings, but often it is not that simple. Rather, the relationship between the content and audience, what the art is saying and to whom, is just as important if not more important than its physical location
